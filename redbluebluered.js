@@ -1,0 +1,13 @@
+abba, aaaa, abcdb, ababb, aaa
+redbluebluered
+redbluebluered
+tobeornottobe
+tobeornottobe
+raiseraysrazeabcdeeeee
+onetwothreefourcowcowcowcowcowabcdeeeee
+onetwothreefourcowcowcowcowabcd
+thequickbrownfoxabba
+redredredredaab
+111111abb
+111111abab
+111111101001010111
